@@ -1,7 +1,7 @@
 # EiEi
 
-Gif
-Po
-Pan
-B
-SupaDeerDar
+Gift
+Por
+Pang
+Bo
+SupaDeerDark
